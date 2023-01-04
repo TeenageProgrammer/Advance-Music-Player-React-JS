@@ -24,7 +24,7 @@ Welcome!
 
 ## Screenshot
 
-![App Screenshot](https://i.ibb.co/4gmSNrb/Thumbnail2.png)
+![App Screenshot](https://i.ibb.co/MSGBwTR/Thumbnail-10-K.png)
 
 
 ## 🚀 About Me
